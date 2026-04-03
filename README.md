@@ -1,2 +1,1 @@
-<img width="498" height="495" alt="image" src="https://github.com/user-attachments/assets/b553db23-24fa-41f1-adfa-a095a1c8b57e" />
-
+![far-cry-5-john-seed](https://github.com/user-attachments/assets/adc14a32-9dce-4c6e-80bf-b8ad2e7fae46)
